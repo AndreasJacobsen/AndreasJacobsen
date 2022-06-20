@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AndreasJacobsen
+- 👋 Hi, I’m Andreas Jacobsen
 - 👀 I’m interested in universal design
 - 🌱 I’m currently learning more about universal design
 - 💞️ I’m looking to collaborate on universal design
