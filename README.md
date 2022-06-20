@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AndreasJacobsen
+- 👀 I’m interested in universal design
+- 🌱 I’m currently learning more about universal design
+- 💞️ I’m looking to collaborate on universal design
+- 📫 How to reach me andreas.jacobsen@inklud.no
